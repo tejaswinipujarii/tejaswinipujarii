@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tejaswinipujarii
 - 👀 I’m interested in ...Learning New Skills
 - 🌱 I’m currently learning ...Digital Marketing
-- 📫 How to reach me ...https://nareshit.com
+- 📫 How to reach me ...https://nareshit.com/
 - 😄 Pronouns: ...teju
 - ⚡ Fun fact: ...Great Things Always Crazy
 
