@@ -2,6 +2,7 @@
 - 👀 I’m interested in ...Learning New Skills
 - 🌱 I’m currently learning ...Digital Marketing
 - 📫 How to reach me ...https://nareshit.com/
+- C sharp dot net updates: https://nareshit.com/courses/c-sharp-net-online-training
 - 😄 Pronouns: ...teju
 - ⚡ Fun fact: ...Great Things Always Crazy
 
