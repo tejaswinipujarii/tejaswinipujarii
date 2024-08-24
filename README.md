@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ...Digital Marketing
 - 📫 How to reach me ...https://nareshit.com/
 - C sharp dot net updates: https://nareshit.com/courses/c-sharp-net-online-training
+- SQL Server : https://nareshit.com/courses/sql-server-online-training
 - 😄 Pronouns: ...teju
 - ⚡ Fun fact: ...Great Things Always Crazy
 
